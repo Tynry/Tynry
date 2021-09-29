@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tynry
-- 👀 I’m interested in basketball and something strange
+- 👀 I’m interested in many tings and something strange
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on nobody
 - 📫 How to reach me QQ：494535653 wechat:Tynry_
